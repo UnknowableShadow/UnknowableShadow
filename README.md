@@ -4,6 +4,7 @@
 - 😄 Pronouns: He/Him, Shadow
 - ⚡ Fun fact: Interesting **Many Disciplines** like *Psychology*, *Mathematic* and *Much more*
 
+- 🔥
 ```
 Current: Learning Science
 ```
